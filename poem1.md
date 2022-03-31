@@ -8,8 +8,7 @@ I’m busy calming my fear
 
 and finding my courage.
 
-I’m busy listening to my kids.
-
+I’m busy listening to my others.
 
 I’m busy getting in touch
 
