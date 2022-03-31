@@ -10,7 +10,6 @@ and finding my courage.
 
 I’m busy listening to others.
 
-
 I’m busy getting in touch
 
 with what is real.
